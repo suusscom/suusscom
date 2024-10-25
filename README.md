@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @suusscom
+- 👀 I’m interested in MOBILE
+- 🌱 I’m currently learning BACKEND
+- 💞️ I’m looking to collaborate on AI APP
+- 😄 Pronouns: SUU
+- ⚡ Fun fact: FUN
